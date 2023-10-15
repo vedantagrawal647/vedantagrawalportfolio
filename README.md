@@ -1,3 +1,2 @@
 # My-Resume
-https://divyanshi-varshney2002.github.io/My-Resume/
-
+https://vedantagrawal647.github.io/vedantagrawalportfolio/
